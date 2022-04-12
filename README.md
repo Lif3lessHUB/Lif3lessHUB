@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Lif3less
 - 👀 I’m interested in computers/tech
 - 🌱 I’m currently learning video editing
-- 💞️ I’m looking for people who can do computer art
+- 💞️ I’m looking for people who play Minecraft Bedrock edition.
 - 📫 You can contact me buy messaging me on discord (Lif3#1551)
 
 <!---
